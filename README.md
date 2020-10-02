@@ -1,6 +1,4 @@
-# Online Social Support Seeking among Pregnant Women Coping with Opioid Misuse
-
-ICHI 2020 Poster [Submitted]
+# Pregnant Women Coping with Opioid Misuse
 
 ## Search terms for opioid drugs:
 
